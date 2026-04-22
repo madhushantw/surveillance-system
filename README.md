@@ -1,2 +1,2 @@
 # surveillance-system
-![Anonymous_poster (5)](https://github.com/madhushantw/surveillance-system/assets/130840450/72acb324-e143-4be3-961d-98e43d61faa5)
+<img width="3179" height="4494" alt="Anonymous_poster (1)" src="https://github.com/user-attachments/assets/a8233522-93eb-422a-b1db-748f0eda4f08" />
